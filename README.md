@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @05Dragon
 - 👀 I’m interested in 3D designing, coding and building robots!
-- 🌱 I’m currently studying in the last year of High School and I am going to pursue BTech - Automation Technology Engineering @McMaster this upcoming Fall!
+- 🌱 I’m finished studying in the last year of High School, and I am going to pursue BTech - Automation Technology Engineering @McMaster this upcoming Fall!
 - 📫 How to reach me -
   Discord - dragon05_0433
 
